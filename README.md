@@ -1,0 +1,1 @@
+# smecicas-emanuel-curs
